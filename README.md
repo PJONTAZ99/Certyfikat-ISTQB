@@ -1,0 +1,1 @@
+# Certyfikat-ISTQB
